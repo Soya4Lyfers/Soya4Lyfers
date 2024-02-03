@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Soya4Lyfers
-- 👀 I’m interested in : computer enginering
+- 👀 I’m interested in : computer engineering
 - 🌱 I’m currently learning : i wanna learn the basic
 - 💞️ I’m looking to collaborate on :nothing yet
 - 📫 How to reach me : dont try 
